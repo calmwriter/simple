@@ -1,3 +1,4 @@
-This documentation describes how to use the Pavel automated bondage cross.
+This documentation describes how to use the Pavel automatic bondage cross.
 
-Note the Pavel bondage device is totally unsafe for children, teenagers, pets, wildlife, and trees.
+Note the Karel bondage device is totally unsafe for children, teenagers, pets, wildlife, and trees.
+
