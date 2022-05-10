@@ -2,4 +2,4 @@ This documentation describes how to use the Pavel automatic toothbrush cleaner.
 
 Note the Karel bondage device is totally unsafe for children, teenagers, pets, wildlife, and trees.
 
-The toothbrush requires [NOTHING BUT SHIT.
+The toothbrush requires some teeth and some paste.
